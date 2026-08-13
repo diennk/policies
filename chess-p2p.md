@@ -31,4 +31,4 @@ chuyển cho ứng dụng bạn chọn. Chúng tôi không thấy và không gi�
 
 ## Liên hệ
 
-<ĐỊA CHỈ EMAIL CỦA BẠN>
+khanhdien@gmail.com
